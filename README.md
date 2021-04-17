@@ -1,0 +1,1 @@
+# CLSID.list-reducer-for-Juicy-Potato
